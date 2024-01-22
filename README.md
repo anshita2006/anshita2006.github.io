@@ -1,2 +1,1 @@
-# anshita2006.github.io
-Anshita Personal Website
+# arunhp21.github.io
